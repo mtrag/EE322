@@ -19,5 +19,5 @@
 
 [Connect with me on LinkedIn!](https://www.linkedin.com/in/malik-tragna/)
 
-[My university, Stevens Institute of Technology](https://upload.wikimedia.org/wikipedia/commons/4/4f/OpenAI_Logo.svg)
+[My university, Stevens Institute of Technology](https://d2jyir0m79gs60.cloudfront.net/college/logos/Stevens_Institute_of_Technology.png)
 
